@@ -1,1 +1,1 @@
-# Olympic1
+# Olympic1 way
